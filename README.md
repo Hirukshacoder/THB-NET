@@ -1,3 +1,3 @@
 # THB-NET
 
-![thb net (1)](https://user-images.githubusercontent.com/97717488/211159674-819d3b63-ce4b-4d05-93f1-3f7d089d0986.png)
+![thb net (2)](https://user-images.githubusercontent.com/97717488/211159703-1b64d0fd-3449-4def-afbe-f820eb31b25d.png)
